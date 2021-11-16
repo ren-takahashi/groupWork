@@ -1,5 +1,5 @@
 # groupWork
-
+:遠藤光輝
 # kensuke1478
 荒竹優翔
 高橋廉
